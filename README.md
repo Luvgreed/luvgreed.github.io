@@ -1,2 +1,2 @@
 Talk is cheap, I ‘ll show you the magic.
-ジンチョウ AJC
+ジンチョウ A.August
